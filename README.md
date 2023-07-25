@@ -9,7 +9,7 @@
 
 - 📫 Correo Contacto **randy.montoya3@gmail.com**
 
-- 📄 My experiencia linkedin.com/in/randy-montoya-a3533452
+- 📄 My experiencia [https://linkedin.com/in/randy-montoya-a3533452](https://linkedin.com/in/randy-montoya-a3533452)
 
 <h3 align="left">Contactarme:</h3>
 <p align="left">
